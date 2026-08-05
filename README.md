@@ -1,5 +1,5 @@
 ℎ𝑖!!                                       
-𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥⋆. 𐙚 ˚𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥             𝑎𝑏𝑜𝑢𝑡 𝑚𝑒!!!                                 
+𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥⋆. 𐙚 ˚𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥𝑥               𝑎𝑏𝑜𝑢𝑡 𝑚𝑒!!!                             
 // multifandom !! //                       
 this is wip ok                             
   DNI: problematic people, people who call people corny for being themselves and      people who make fun of other people's    interests 
